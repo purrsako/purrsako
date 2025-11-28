@@ -1,16 +1,20 @@
-## Hi there 👋
+────୨ৎ──── ────୨ৎ──── ────୨ৎ──── ────୨ৎ──── 
 
-<!--
-**purrsako/purrsako** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+![bde20063a6e1f122d8dd5d4c2fa0e201](https://github.com/user-attachments/assets/4a589a06-cfb1-4611-a55b-074ae6d4f451)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+────୨ৎ──── ────୨ৎ──── ────୨ৎ──── ────୨ৎ──── 
+
+⋮ ⌗ ┆ ╰┈➤            it's me !! sakoo (˶˃ ᵕ ˂˶)
+
+
+ㅤㅤㅤㅤㅤㅤsocials ˎˊ˗
+
+┊ discord : purrsako.
+
+┊ tiktok : scxryz0
+
+┊ instagram : kvqrns
+
+𖦹 ׂ 𓈒 🥞 ／ ⋆ ۪ more in strawpage and carrd !
