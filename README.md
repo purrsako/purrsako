@@ -11,7 +11,7 @@
 
 ㅤㅤㅤㅤㅤㅤsocials ˎˊ˗
 
-┊ discord : purrsako.
+┊ discord : purrsakoo
 
 ┊ tiktok : scxryz0
 
