@@ -18,3 +18,6 @@
 ┊ instagram : kvqrns
 
 𖦹 ׂ 𓈒 🥞 ／ ⋆ ۪ more in strawpage and carrd !
+
+
+sorry for basic introduction sobs
